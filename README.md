@@ -1,2 +1,2 @@
-# Match.com
+# 7chats.com
 matching singles
